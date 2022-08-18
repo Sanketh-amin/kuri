@@ -1,1 +1,3 @@
-# kuri
+# kuri ganesh
+nari
+kundapura
